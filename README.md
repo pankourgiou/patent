@@ -1,0 +1,2 @@
+# patent
+Working there are two options : option 1--->move objects from point A to point B   option 2---> give instructions to people executing working option 1....what I sometimes do is to create a special way to work so that it is similar to a patent way of working. This means you can do all jobs(in life) using this specific patent...from making a döner kebap to making a chocolate or beer. Example: no ISO no martini and no martini no party. Need to be clean in high standards of clearness
